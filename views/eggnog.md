@@ -17,7 +17,7 @@
 ## INSTRUCTIONS
 
 1. Separate egg yolks and whites. (Reserve the whites for another use.)
-2. Combine yolks and sugar in a large mixing bowl and whisk until well blended and creamy.
+2. Combine yolks and slowly sugar in a large mixing bowl while whisking until well blended and creamy.
 3. Add cream, milk, bourbon, rum, Cognac, and salt, then stir.
 4. Bottle immediately (An old liquor bottle works great, as do 22-ounce bail-top bottles.)
 5. Keep refrigerated for at least 3 weeks, or up to a year if you can.
